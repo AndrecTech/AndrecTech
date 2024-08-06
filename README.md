@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on finance transformation projects, integrating new technologies, and improving business processes.
 - 📫 How to reach me: https://www.linkedin.com/in/andre-escobosa-1334b6159/
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I studied abroad in both Austria and Spain during my undergraduate years.
+- ⚡ Fun fact: I studied abroad in both Austria and Spain during my undergraduate years and have beent to 27 countries.
 
 <!---
 AndrecTech/AndrecTech is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
